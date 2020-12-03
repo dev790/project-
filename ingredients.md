@@ -1,0 +1,10 @@
+ingredients for making a cake
+
+Baking Powder. Made from Cream of tartar and starch, baking powder is a leavening agent, which causes your batter to rise
+Baking Soda
+Butter
+Cornstarch
+Eggs
+Flour
+Milk 
+Salt
